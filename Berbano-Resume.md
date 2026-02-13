@@ -33,6 +33,11 @@ Business Process Specialist with strong experience in healthcare BPO supporting 
 
 ---
 
+## Certifacation
+
+- https://www.credly.com/users/jorge-daniel-berbano/badges#credly
+---
+
 ## 💼 Professional Experience
 
 ### Senior Business Process Specialist  
